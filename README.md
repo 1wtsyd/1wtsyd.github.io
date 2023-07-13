@@ -1,1 +1,0 @@
-# 1wtsyd.github.io
